@@ -1,6 +1,5 @@
 Dmitry Novikov
-22 years old 
-Phone number: +7 991 424 41 35 
+22 years old  
 Mail: d.novikov2708@gmail.com 
 Telegram: @Dima157892
 ________________________________________
